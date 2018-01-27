@@ -1,1 +1,1 @@
-# human-rights
+# human rights
